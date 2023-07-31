@@ -1,5 +1,4 @@
 - 👋 Hi, I’m web3Gurung.
 - 👀 I’m interested in community in web3 and growth. Sometimes, I code. 
-- 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on growing up communities in web3.
 - 📫 How to reach me - Twitter at [@web3Gurung](https://twitter.com/web3Gurung).
